@@ -2,12 +2,9 @@
 
 I'm Sakurako and I'm from Japan. I used to live in Dubai but i don't remamber anything because I'm only 1 year old.
 I have a sister and she is in grade 8.
-I like playing badminton 🏸 watching movies 🎥 and listening to music 💿
+I like playing badminton 🏸 watching movies 🎥 https://www.netflix.com/browseand listening to music 💿 https://youtu.be/Euf1-3WRino
 
-
-![294185542_415555857215290_7366887244204440010_n](https://user-images.githubusercontent.com/112539110/188311119-aeb5e3f4-8f19-4017-9bbb-f30189c0fae6.jpg)
-![Unknown](https://user-images.githubusercontent.com/112539110/188311165-5b079f6a-d99d-4224-a88b-0fc27cb9bda2.jpeg)
-
+![294185542_415555857215290_7366887244204440010_n](https://user-images.githubusercontent.com/112539110/188311826-179b4810-1560-48cc-8380-d0f89d2e048f.jpg)
 
 <!--
 **SakurakoMitsui/SakurakoMitsui** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
