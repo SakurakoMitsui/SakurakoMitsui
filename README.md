@@ -1,6 +1,6 @@
 # Hi there 👋
 
-I'm Sakurako and I'm from Japan. I used to live in Dubai but i don't remamber anything because I'm only 1 year old.
+I'm Sakurako and I'm from Japan. I used to live in Dubai but I don't remamber because I'm only 1 year old.
 I have a sister and she is in grade 8.
 I like playing badminton 🏸 watching movies 🎥 https://www.netflix.com/ listening to music 💿 https://youtu.be/Euf1-3WRino
 
