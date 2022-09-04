@@ -2,7 +2,7 @@
 
 I'm Sakurako and I'm from Japan. I used to live in Dubai but i don't remamber anything because I'm only 1 year old.
 I have a sister and she is in grade 8.
-I like playing badminton 🏸 watching movies 🎥 https://www.netflix.com/browseand listening to music 💿 https://youtu.be/Euf1-3WRino
+I like playing badminton 🏸 watching movies 🎥 https://www.netflix.com/ listening to music 💿 https://youtu.be/Euf1-3WRino
 
 ![294185542_415555857215290_7366887244204440010_n](https://user-images.githubusercontent.com/112539110/188311826-179b4810-1560-48cc-8380-d0f89d2e048f.jpg)
 
