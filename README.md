@@ -1,7 +1,7 @@
 # Hi there 👋
 
 - I'm Sakurako and I'm from _Japan_[^1].
-- I used to live in Dubai but I don't remamber because I was baby.
+- I used to live in *＊Dubai** but I don't remamber because I was a baby.
 - I have a sister[^2] and she is in grade 9.
 - I like playing volleyball🏐 watching movies 🎥 https://www.netflix.com/ listening to music 💿 https://youtu.be/Euf1-3WRino
 
