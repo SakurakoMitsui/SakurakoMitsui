@@ -6,13 +6,14 @@
 - I like playing volleyball🏐 watching movies 🎥 https://www.netflix.com/ listening to music 💿 https://youtu.be/Euf1-3WRino
 
 || Japan|Korea |
-| ------------- |:-------------:| -----:|
+| :-------------: |:-------------:| :-----:|
 | Language      |  Japanese |Korean |
-| Government   | Constitutional Monarchy |  Presidential Republic  |
-| Food  | Sushi, Ramen | Bibimpab, Kimchi   |
+| Government   | Constitutional Monarchy |Presidential Republic  |
+| Food  | Sushi, Ramen |  Bibimpab, Kimchi  |
 
 
 ![294185542_415555857215290_7366887244204440010_n](https://user-images.githubusercontent.com/112539110/188311826-179b4810-1560-48cc-8380-d0f89d2e048f.jpg)
+![](https://s30876.pcdn.co/wp-content/uploads/Japan-e1634207070862.jpg.optimal.jpg)
 
 
 [^1]:country
