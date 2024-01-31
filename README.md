@@ -4,6 +4,7 @@
 - I used to live in **Dubai** but I don't remamber because I was a baby.
 - I have a sister[^2] and she is in grade 9.
 - I like playing volleyball🏐 watching movies 🎥 https://www.netflix.com/ listening to music 💿 https://youtu.be/Euf1-3WRino
+- Here's link for my profile https://github.com/SakurakoMitsui
 
 || Japan|Korea |
 | :-------------: |:-------------:| :-----:|
@@ -15,7 +16,7 @@
 ![294185542_415555857215290_7366887244204440010_n](https://user-images.githubusercontent.com/112539110/188311826-179b4810-1560-48cc-8380-d0f89d2e048f.jpg)
 ![](https://s30876.pcdn.co/wp-content/uploads/Japan-e1634207070862.jpg.optimal.jpg)
 
-https://github.com/SakurakoMitsui
+
 
 
 [^1]:country
